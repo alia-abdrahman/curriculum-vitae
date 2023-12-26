@@ -1,3 +1,3 @@
-# curriculum-vitae
+# e-portfolio
 
-## Nur Alia binti Abd Rahman
+## Nur Alia's Digital Portfolio
